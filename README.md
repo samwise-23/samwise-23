@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @samwise-23
+- 👀 I’m interested in product management, game design & behaviour science.
+- 🌱 I’m currently learning Android
+- 💞️ I’m looking to collaborate on nothing at the moment
+- 📫 How to reach me ...
